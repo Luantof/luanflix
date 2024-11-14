@@ -48,3 +48,10 @@ Ronaldo,O Fenômeno
 O apelido "O Fenômeno" é justificado: o futebol nunca tinha visto nada como Ronaldo Nazário. Lesões e frustrações ameaçaram sua carreira, mas não havia como parar o brasileiro.
 
 ![](https://media1.tenor.com/m/3_7PwHiaBAsAAAAd/ronaldo-nazario-real-madrid.gif)
+
+ E.T
+
+A produção conta a história de Elliott, um menino que faz amizade com um extraterrestre, apelidado de "E.T", que está preso na Terra; Elliott e seus irmãos ajudam o ET a retornar ao seu planeta natal enquanto tentam mantê-lo escondido do governo. Poster original do filme, desenhado por John Alvin em 1982.
+
+![](https://media1.tenor.com/m/1oBTXm-GvAkAAAAd/et-cute.gif)
+
