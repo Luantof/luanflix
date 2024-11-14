@@ -29,10 +29,10 @@ Tropa De Elite
 
 Nascimento, capitão da Tropa de Elite do Rio de Janeiro, é designado para chefiar uma das equipes que tem como missão apaziguar o Morro do Turano. Ele precisa cumprir as ordens enquanto procura por um substituto para ficar em seu lugar. Em meio a um tiroteio, Nascimento e sua equipe resgatam Neto e Matias, dois aspirantes a oficiais da PM. Ansiosos para entrar em ação e impressionados com a eficiência de seus salvadores, os dois se candidatam ao curso de formação da Tropa de Elite.
 
-![](https://media1.tenor.com/m/STAREZbn7jkAAAAd/cracked-player-shrek-shrek-on-easymc.gif)
+![](https://media1.tenor.com/m/4sEULzbSxlYAAAAd/bope.gif)
 
 Shrek
 
 Enredo. Shrek, um temido e aterrorizante ogro verde que ama a solidão em seu pântano, vê sua vida interrompida quando diversas criaturas de contos de fada são exiladas para lá por ordem do maligno Lorde Farquaad. Shrek anuncia que irá conversar com Farquaad para mandá-los de volta ao seus lugares de origem.
 
-![](https://media1.tenor.com/m/zwad8-Wr61kAAAAd/smirk.gif)
+![](https://media1.tenor.com/m/STAREZbn7jkAAAAd/cracked-player-shrek-shrek-on-easymc.gif)
