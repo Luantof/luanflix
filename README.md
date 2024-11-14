@@ -55,3 +55,9 @@ A produção conta a história de Elliott, um menino que faz amizade com um extr
 
 ![](https://media1.tenor.com/m/1oBTXm-GvAkAAAAd/et-cute.gif)
 
+Velozea E Furiosos
+
+Brian O'Conner é um policial que se infiltra no submundo dos rachas de rua para investigar uma série de furtos. Enquanto tenta ganhar o respeito e a confiança do líder Dom Toretto, ele corre o risco de ser desmascarado.
+
+![](https://media1.tenor.com/m/7Ienx0j5cqoAAAAC/fast-and.gif)
+
