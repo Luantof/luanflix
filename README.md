@@ -18,3 +18,9 @@ Tubarão
 Um terrível ataque a banhistas é o sinal de que a praia da pequena cidade de Amity, na Nova Inglaterra, virou refeitório de um gigantesco tubarão branco. O chefe de polícia Martin Brody quer fechar as praias, mas o prefeito Larry Vaughn não permite, com medo de que o faturamento com a receita dos turistas deixe a cidade sem recursos. O cientista Matt Hooper e o pescador Quint se oferecem para ajudar Brody a capturar e matar a fera, mas a missão vai ser mais complicada do que eles imaginavam.
 
 ![](https://media1.tenor.com/m/NsFlhDBRA1cAAAAd/shark-attack-shark.gif)
+
+Gladiador
+
+Lúcio deve entrar no Coliseu após os poderosos imperadores de Roma conquistarem sua terra natal. Com raiva no coração e o futuro do império em jogo, ele olha para o passado para encontrar a força e a honra necessárias.
+
+![](https://media1.tenor.com/m/5-4qNrDbnJ0AAAAd/muhte%C5%9Fem-d%C3%B6rtl%C3%BC.gif)
