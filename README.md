@@ -36,3 +36,9 @@ Shrek
 Enredo. Shrek, um temido e aterrorizante ogro verde que ama a solidão em seu pântano, vê sua vida interrompida quando diversas criaturas de contos de fada são exiladas para lá por ordem do maligno Lorde Farquaad. Shrek anuncia que irá conversar com Farquaad para mandá-los de volta ao seus lugares de origem.
 
 ![](https://media1.tenor.com/m/STAREZbn7jkAAAAd/cracked-player-shrek-shrek-on-easymc.gif)
+
+O Rei Leão
+
+Este desenho animado da Disney mostra as aventuras de um leão jovem de nome Simba, o herdeiro de seu pai, Mufasa. O tio malvado de Simba, Oscar, planeja roubar o trono de Mufasa atraindo pai e filho para uma emboscada. Simba consegue escapar e somente Mufasa morre. Com a ajuda de seus amigos,Timon e Pumba, ele reaparece como adulto para recuperar sua terra, que foi roubada por seu tio Oscar.
+
+![](https://media1.tenor.com/m/MHPlRQ_8L8kAAAAd/lion-king-simba.gif)
