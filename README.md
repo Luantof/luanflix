@@ -42,3 +42,9 @@ O Rei Leão
 Este desenho animado da Disney mostra as aventuras de um leão jovem de nome Simba, o herdeiro de seu pai, Mufasa. O tio malvado de Simba, Oscar, planeja roubar o trono de Mufasa atraindo pai e filho para uma emboscada. Simba consegue escapar e somente Mufasa morre. Com a ajuda de seus amigos,Timon e Pumba, ele reaparece como adulto para recuperar sua terra, que foi roubada por seu tio Oscar.
 
 ![](https://media1.tenor.com/m/MHPlRQ_8L8kAAAAd/lion-king-simba.gif)
+
+Ronaldo,O Fenômeno
+
+O apelido "O Fenômeno" é justificado: o futebol nunca tinha visto nada como Ronaldo Nazário. Lesões e frustrações ameaçaram sua carreira, mas não havia como parar o brasileiro.
+
+![](https://media1.tenor.com/m/3_7PwHiaBAsAAAAd/ronaldo-nazario-real-madrid.gif)
